@@ -26,4 +26,4 @@ Step-by-step repipe to make an eggless delicious cake:
 16) After 50-55 minutes take out the mould and you will find that your 
     batter has risened and also it has solidified.
 17) Now carefully take out the cake from the mould using a knife.
-18) Keep the cake on a plate and now the cake is ready to eat.
+18) Keep the cake on a plate and now the cake is ready to eat.[google]{htps://www.google.com}
